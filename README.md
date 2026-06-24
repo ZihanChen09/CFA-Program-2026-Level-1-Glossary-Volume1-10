@@ -1,2 +1,2 @@
 # CFA-Program-2026-Level-1-Glossary-Volume1-10
-Preparing CFA L1 for 2026 ing... 
+Preparing CFA L1 for 2026, share for free.
